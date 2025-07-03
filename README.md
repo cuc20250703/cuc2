@@ -31,4 +31,4 @@
 总结
 对于那些热衷于观看 日本AV免费 视频的朋友，我们的平台无疑是一个理想的选择。通过定期更新高清内容、安全保障和便捷的分类系统，我们致力于提供最佳的观看体验。如果你正在寻找一个可靠的免费资源平台，记得访问我们的网站，体验精彩的日本AV视频。
 
-<span style="display:none;">[Canonical link] ( https://github.com/cuc20250703/cuc1 ）</span>
+<span style="display:none;">[Canonical link] ( https://github.com/cuc20250703/cuc2 ）</span>
